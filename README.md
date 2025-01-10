@@ -1,6 +1,15 @@
-## Hi there 👋
+## Hello, world! 👋
 
-I'm Natalia, the social video editor at GitHub. 
+🖍️ **I'm Natalia, the social video editor at GitHub.**
+
+🥯 I'm based in New Jersey, USA (more specifically, the Jersey shore!)
+💬 I know a bunch about social media platforms, audience engagement, editing for social, bite-sized storytelling, trends, online community building and cat videos!
+
+
+
+
+
+
 <!--
 **natcat8/natcat8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
