@@ -49,23 +49,6 @@ Motto To Live By
 _“There are plenty of difficult obstacles in your path. Don’t allow yourself to become one of them.”_ - Ralph Marsten 
 
 
-
-
-
-
-
-
-
-
-
--  
--  
-
-
-
-
-
-
 <!--
 **natcat8/natcat8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
