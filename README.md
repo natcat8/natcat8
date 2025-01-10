@@ -4,12 +4,6 @@
 
 🥯 I'm based in New Jersey, USA (more specifically, the Jersey shore!)
 
-💬 Ask me about anything social media, audience engagement, storytelling, trends, online community building and cat videos!
-
--------
-
-## What I Do
-
 ✨ I work with the video and social teams to create social-first content for GitHub's social platforms, which includes original social content and repurposed existing content 
 
 ----
