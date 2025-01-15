@@ -32,7 +32,7 @@
 
 📚 Reading: Can’t get enough of mystery, horror and thriller novels.
 
-🍳 Cooking: I'm a huge foodie, and when I'm not experimenting in the kitchen, I'm exploring a new restauant. 
+🍳 Cooking: I'm a huge foodie, and when I'm not experimenting in the kitchen, I'm exploring a new restaurant. 
 
 🏋🏻‍♀️ Working Out: The gym is where I enjoy my me-time.
 
